@@ -1,7 +1,7 @@
 # SkinRave Promo Code: **GITHUB** – Free CS2 Case Rewards in 2025
 
 If you have been exploring CS2 case unboxing platforms in 2025, you may have already come across **SkinRave**. The platform is gaining attention for its modern interface, transparent mechanics, and reward-driven experience. With the **SkinRave promo code `GITHUB`**, new users can unlock free case rewards instantly and explore the platform without needing to deposit.
-[<img width="661" height="525" alt="image" src="https://github.com/user-attachments/assets/1a84f519-8c1a-4523-8767-318235c0aaff" />](https://skinrave.gg/en/r/github)
+[<img width="661" height="525" alt="image" src="https://github.com/user-attachments/assets/1a84f519-8c1a-4523-8767-318235c0aaff" />]
 
 This guide explains how to redeem the code, how the SkinRave rewards system works, what makes the platform different from other CS2 case sites, and what to expect when opening cases. If you are looking for free rewards, clear odds, and a secure CS2 case unboxing experience, this overview covers everything you need to know.
 
