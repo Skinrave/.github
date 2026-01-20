@@ -136,3 +136,11 @@ This content may contain affiliate links. Using promo codes or signing up throug
 - [FAQ](https://github.com/Skinrave/.github/blob/main/faq.md)
 - [Contact](https://github.com/Skinrave/.github/blob/main/contact.md)
 
+##Direct Resources
+- https://raw.githubusercontent.com/Skinrave/.github/main/provably-fair.md
+- https://raw.githubusercontent.com/Skinrave/.github/main/how-to-use.md
+- https://raw.githubusercontent.com/Skinrave/.github/main/contact.md
+- https://raw.githubusercontent.com/Skinrave/.github/main/faq.md
+- https://raw.githubusercontent.com/Skinrave/.github/main/is-skinrave-legit.md
+- https://raw.githubusercontent.com/Skinrave/.github/main/provably-fair.md
+- https://raw.githubusercontent.com/Skinrave/.github/main/skinrave-promo-code.md
